@@ -1,0 +1,2 @@
+# rblx-script-
+Scriptautoparry
